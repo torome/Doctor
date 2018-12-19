@@ -8,9 +8,9 @@
 
 [山东省大学生软件大赛一等奖](https://www.softqilu.com/show-3-1920.htm)
 
-山东省大学生移动互联创新创业大赛二等奖
+[山东省大学生移动互联创新创业大赛二等奖](http://www.mobileint.org/news-show-89.html)
 
-山东省新动能软件创新创业大赛三等奖
+[山东省新动能软件创新创业大赛三等奖](http://sdsoft.topcio.cn/sssd/157087643.jhtml)
 
 # 一.科学性
 
